@@ -1,5 +1,8 @@
 # 7th-sem
 
+## Let me help you to understand the basics of following topics and Thank me later!!!😍.
+
+
 1. 𝐒𝐨𝐟𝐭𝐰𝐚𝐫𝐞 𝐄𝐧𝐠𝐢𝐧𝐞𝐞𝐫𝐢𝐧𝐠 -> https://drive.google.com/file/d/1DH1HGxFpXLljfetIx4Ot6izBrKSo3J0k/view?usp=sharing
 
 
